@@ -6,7 +6,7 @@ baseurl: "/paul-blog"
 locale: en-US
 
 # Theme
-theme: jekyll-theme-so-simple
+remote_theme: mmistakes/so-simple-theme
 skin: "/assets/css/skins/default.css"
 
 # Author
