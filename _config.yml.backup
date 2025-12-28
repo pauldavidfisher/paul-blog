@@ -6,16 +6,13 @@ baseurl: "/paul-blog"
 locale: en-US
 
 # Theme
-theme: jekyll-theme-so-simple
+remote_theme: mmistakes/so-simple-theme
 skin: "/assets/css/skins/default.css"
 
 # Author
 author:
   name: Paul
   
-# Logo/Avatar
-logo: /images/yin-yang.svg  # Path to your logo
-
 # Plugins
 plugins:
   - jekyll-remote-theme
@@ -31,16 +28,3 @@ paginate_path: /page:num/
 # Reading Settings
 read_time: true
 words_per_minute: 200
-
-# Navigation
-navigation:
-  - title: Posts
-    url: /posts/
-  - title: Categories
-    url: /categories/
-  - title: Tags
-    url: /tags/
-  - title: Recipes
-    url: /recipes/
-  - title: Search
-    url: /search/
