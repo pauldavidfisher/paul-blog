@@ -1,0 +1,29 @@
+# Site Settings
+title: "Paul's Site"
+description: "My personal Jekyll site built with So Simple"
+url: ""
+baseurl: ""
+locale: en-US
+
+# Theme
+theme: jekyll-theme-so-simple
+skin: "/assets/css/skins/default.css"
+
+# Author
+author:
+  name: Paul
+  
+# Plugins
+plugins:
+  - jekyll-paginate
+  - jekyll-sitemap
+  - jekyll-seo-tag
+  - jekyll-feed
+
+# Pagination
+paginate: 5
+paginate_path: /page:num/
+
+# Reading Settings
+read_time: true
+words_per_minute: 200
