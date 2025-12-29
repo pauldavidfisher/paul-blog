@@ -13,6 +13,9 @@ skin: "/assets/css/skins/default.css"
 author:
   name: Paul
   
+  # Google Analytics
+google_analytics: G-4HVMMT189L
+  
 # Logo/Avatar
 logo: /images/yin-yang.svg  # Path to your logo
 
@@ -23,7 +26,7 @@ plugins:
   - jekyll-sitemap
   - jekyll-seo-tag
   - jekyll-feed
-  
+
 # Collections
 collections:
   recipes:
