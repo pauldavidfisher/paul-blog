@@ -23,8 +23,14 @@ plugins:
   - jekyll-sitemap
   - jekyll-seo-tag
   - jekyll-feed
-
-# Pagination
+  
+# Collections
+collections:
+  recipes:
+    output: true
+    permalink: /:collection/:title/
+    
+    # Pagination
 paginate: 5
 paginate_path: /page:num/
 
