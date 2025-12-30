@@ -1,8 +1,8 @@
 # Site Settings
 title: "Paul's Site"
 description: "My personal Jekyll site built with So Simple"
-url: "https://pauldavidfisher.github.io"
-baseurl: "/paul-blog"
+url: "https://blog.plumdesignbuild.com"
+baseurl: ""
 locale: en-US
 
 # Theme
