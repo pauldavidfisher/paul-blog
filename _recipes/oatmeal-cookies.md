@@ -1,6 +1,6 @@
 ---
 title: Oatmeal Cookies
-image: /images/oatmeal-cookies-400x200.jpg
+image: /images/oatmeal-cookies-lg.jpg
 layout: post
 ---
 

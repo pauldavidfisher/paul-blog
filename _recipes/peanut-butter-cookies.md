@@ -1,6 +1,6 @@
 ---
 title: Peanut Butter Cookies
-image: /images/peanut-butter-cookies-400x200.jpg
+image: /images/peanut-butter-cookies-lg.jpg
 layout: post
 ---
 

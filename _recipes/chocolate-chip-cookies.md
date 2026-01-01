@@ -1,6 +1,6 @@
 ---
 title: Chocolate Chip Cookies
-image: /images/chocolate-chip-cookies-400x200.jpg
+image: /images/chocolate-chip-cookies-lg.jpg
 layout: post
 ---
 
