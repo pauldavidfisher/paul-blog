@@ -6,7 +6,7 @@ author: Paul
 excerpt: "Marcel shares photos from Castelbouc, a medieval French village built entirely around a rock formation with a Templar castle on top."
 image:
   path: /images/00017994-PHOTO-2024-07-15-15-31-12.jpg
-  thumbnail: /images/00017994-PHOTO-2024-07-15-15-31-12-thumb.jpg
+  thumbnail: /images/00017994-PHOTO-2024-07-15-15-31-12-400x200.jpg
 categories:
   - travel
   - family
