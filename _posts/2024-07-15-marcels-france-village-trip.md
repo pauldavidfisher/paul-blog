@@ -14,8 +14,6 @@ tags:
   - france
 ---
 
-Marcel sharing photos from his holiday in Castelbouc, France, a village built around and into a rock formation.
-
 > Marcel sharing photos from his holiday in Castelbouc, France, a village built around and into a rock formation.
 ### 7/15/24
 
