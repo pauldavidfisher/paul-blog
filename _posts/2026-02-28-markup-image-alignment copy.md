@@ -67,17 +67,17 @@ And just when you thought we were done, we're going to do them all over again wi
 </figure>
 
 <figure class="align-center">
-  <a href="#"><img src="{{ '/images/00017995-PHOTO-2024-07-15-15-31-12-580.jpg' | absolute_url }}" alt=""></a>
+  <a href="#"><img src="{{ '/images/00017995-PHOTO-2024-07-15-15-31-13-580.jpg' | absolute_url }}" alt=""></a>
   <figcaption>Look at 580 x 300 <a href="#">getting some</a> love.</figcaption>
 </figure>
 
 <figure class="align-center">
-  <a href="#"><img src="{{ '/images/00017996-PHOTO-2024-07-15-15-31-12-580.jpg' | absolute_url }}" alt=""></a>
+  <a href="#"><img src="{{ '/images/00017996-PHOTO-2024-07-15-15-31-13-580.jpg' | absolute_url }}" alt=""></a>
   <figcaption>Look at 580 x 300 <a href="#">getting some</a> love.</figcaption>
 </figure>
 
 <figure class="align-center">
-  <a href="#"><img src="{{ '/images/00017997-PHOTO-2024-07-15-15-31-12-580.jpg' | absolute_url }}" alt=""></a>
+  <a href="#"><img src="{{ '/images/00017997-PHOTO-2024-07-15-15-31-13-580.jpg' | absolute_url }}" alt=""></a>
   <figcaption>Look at 580 x 300 <a href="#">getting some</a> love.</figcaption>
 </figure>
 
