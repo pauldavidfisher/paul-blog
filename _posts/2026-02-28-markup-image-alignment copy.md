@@ -2,7 +2,7 @@
 title: "Markup: Image Alignment"
 image: 
   path: /images/so-simple-sample-image-5.jpg
-  thumbnail: /images/so-simple-sample-image-5-400x200.jpg
+  thumbnail: /images/00017994-PHOTO-2024-07-15-15-31-12-400-200.jpg
   caption: "Photo from [WeGraphics](http://wegraphics.net/downloads/free-ultimate-blurred-background-pack/)"
 categories:
   - Markup
