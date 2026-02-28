@@ -18,6 +18,21 @@ tags:
 ### 7/15/24
 
 **~ Marcel Marsie👍:** on holiday in the village of Castelbouc, the village is built entirely around a rock and even in it.  On top of the rock is a castle that once belonged to a Templar knight
+<figure class="align-center">
+  <a href="#"><img src="{{ '/images/00017994-PHOTO-2024-07-15-15-31-12-580.jpg' | absolute_url }}" alt=""></a>
+</figure>
+
+<figure class="align-center">
+  <a href="#"><img src="{{ '/images/00017995-PHOTO-2024-07-15-15-31-13-580.jpg' | absolute_url }}" alt=""></a>
+</figure>
+
+<figure class="align-center">
+  <a href="#"><img src="{{ '/images/00017996-PHOTO-2024-07-15-15-31-13-580.jpg' | absolute_url }}" alt=""></a>
+</figure>
+
+<figure class="align-center">
+  <a href="#"><img src="{{ '/images/00017997-PHOTO-2024-07-15-15-31-13-580.jpg' | absolute_url }}" alt=""></a>
+</figure>
 **~ Marcel Marsie👍:** France
 **Luke Fisher:** Wow!!
 **Luke Fisher:** And there were so many placiboos
