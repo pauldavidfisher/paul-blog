@@ -1,17 +1,19 @@
 ---
-layout: post
-title: "Marcel's France Village Trip"
-date: 2024-07-15 00:00:00 +0000
-author: Paul
-excerpt: "Marcel shares photos from Castelbouc, a medieval French village built entirely around a rock formation with a Templar castle on top."
-image:
-  path: /images/00017994-PHOTO-2024-07-15-15-31-12.jpg
-  thumbnail: /images/00017994-PHOTO-2024-07-15-15-31-12-400x200.jpg
+title: "Markup: Image Alignment"
+image: 
+  path: /images/00017994-PHOTO-2024-07-15-15-31-12-580.jpg
+  thumbnail: /images/00017994-PHOTO-2024-07-15-15-31-12-400-200.jpg
+  caption: "Photo from [WeGraphics](http://wegraphics.net/downloads/free-ultimate-blurred-background-pack/)"
 categories:
-  - travel
-  - family
+  - Markup
 tags:
-  - france
+  - alignment
+  - captions
+  - content
+  - css
+  - image
+  - markup
+last_modified_at: 2018-02-05T16:19:55-05:00
 ---
 
 > Marcel sharing photos from his holiday in Castelbouc, France, a village built around and into a rock formation.
