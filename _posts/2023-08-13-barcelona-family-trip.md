@@ -11,24 +11,24 @@ tags:
   - barcelona
 ---
 
-[📍 View location](https://maps.google.com/?q=41.375343,2.136206)
+**Paul:** [📍 View location](https://maps.google.com/?q=41.375343,2.136206)
 
-[📍 View location](https://maps.google.com/?q=41.375313,2.136172)
+**Chloe:** [📍 View location](https://maps.google.com/?q=41.375313,2.136172)
 
-So, who wants to go see a flamenco show tomorrow evening? I've been looking at places and prices
+**Tyler:** So, who wants to go see a flamenco show tomorrow evening? I've been looking at places and prices
 
-I've found a very nice spot in El Born
+**Tyler:** I've found a very nice spot in El Born
 
-[📍 View location](https://maps.google.com/?q=41.375374,2.136197)
+**Natalie:** [📍 View location](https://maps.google.com/?q=41.375374,2.136197)
 
-Okay! We're on our way home now
+**Tyler:** Okay! We're on our way home now
 
-Tyler is here
+**Chloe:** Tyler is here
 
-[📍 View location](https://maps.google.com/?q=41.374432,2.136348)
+**Tyler:** [📍 View location](https://maps.google.com/?q=41.374432,2.136348)
 
-En tolipa aan het koffie halen
+**Tyler:** En tolipa aan het koffie halen
 
-Awwwh love these!
+**Natalie:** Awwwh love these!
 
-David and I made it home safely
+**Natalie:** David and I made it home safely
