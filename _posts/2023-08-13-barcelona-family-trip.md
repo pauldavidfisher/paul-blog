@@ -14,6 +14,8 @@ tags:
   - barcelona
 ---
 
+<script src="https://embed.github.com/view/geojson/pauldavidfisher/paul-blog/main/_geojson/2023-08-13-barcelona-family-trip.geojson?height=300&width=500"></script>
+
 **Paul:** [📍 View location](https://maps.google.com/?q=41.375343,2.136206)
 
 **Chloe:** [📍 View location](https://maps.google.com/?q=41.375313,2.136172)
