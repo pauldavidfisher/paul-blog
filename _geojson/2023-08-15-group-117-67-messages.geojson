@@ -1,0 +1,96 @@
+{
+  "type": "FeatureCollection",
+  "features": [
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Chloe"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.181488,
+          41.383804
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Tyler"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.182207,
+          41.383614
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Luke"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.177217,
+          41.382965
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Chrisje"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.177291,
+          41.382835
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Tyler"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.177585,
+          41.383133
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Tyler"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.174925,
+          41.380711
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Tyler"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.174939,
+          41.380703
+        ]
+      }
+    }
+  ]
+}

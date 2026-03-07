@@ -1,0 +1,31 @@
+{
+  "type": "FeatureCollection",
+  "features": [
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Natalie"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.18268,
+          41.384533
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Chrisje"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.142453,
+          41.387974
+        ]
+      }
+    }
+  ]
+}
