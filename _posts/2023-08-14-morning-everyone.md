@@ -1,8 +1,8 @@
 ---
 layout: post
-title: "Barcelona Day Two — Flamenco and Sitges Plans"
+title: "Morning everyone"
 date: 2023-08-14
-excerpt: "The family plans a flamenco show and debates a trip to Sitges."
+excerpt: "Tossa de Mar"
 image:
   path: /images/00000068-PHOTO-2023-08-14-03-35-48.jpg
   thumbnail: /images/00000068-PHOTO-2023-08-14-03-35-48-400x200.jpg
@@ -13,6 +13,8 @@ tags:
   - whatsapp
   - barcelona
 ---
+
+<script src="https://embed.github.com/view/geojson/pauldavidfisher/paul-blog/main/_geojson/2023-08-14-morning-everyone.geojson?height=300&width=500"></script>
 
 **Tyler:** Morning everyone
 

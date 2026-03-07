@@ -1,0 +1,57 @@
+{
+  "type": "FeatureCollection",
+  "features": [
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Natalie"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.170545,
+          41.393299
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Tyler"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.133384,
+          41.37265
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Chrisje"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.12435,
+          41.389488
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Chrisje"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.124418,
+          41.389507
+        ]
+      }
+    }
+  ]
+}
