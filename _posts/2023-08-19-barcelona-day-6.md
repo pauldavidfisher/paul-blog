@@ -1,8 +1,8 @@
 ---
 layout: post
-title: "Barcelona Day 6"
+title: "Barcelona Day 7"
 date: 2023-08-19
-excerpt: "Barcelona Day 6"
+excerpt: "Barcelona Day 7"
 image:
   path: /images/00000473-PHOTO-2023-08-19-03-27-45.jpg
   thumbnail: /images/00000473-PHOTO-2023-08-19-03-27-45-400x200.jpg
@@ -138,6 +138,7 @@ tags:
 
 
 **Paul:**
+![image-right]({{ /images/peanut-butter-cookies-400x200.jpg' | absolute_url }}){: .align-right}
 
 ![00000500-PHOTO-2023-08-19-09-36-10](/images/00000500-PHOTO-2023-08-19-09-36-10.jpg)
 {: .align-center}
