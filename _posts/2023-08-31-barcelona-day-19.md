@@ -1,0 +1,184 @@
+---
+layout: post
+title: "Barcelona Day 19"
+date: 2023-08-31
+excerpt: "Barcelona Day 19"
+image:
+  path: /images/00001337-PHOTO-2023-08-31-03-02-10.jpg
+  thumbnail: /images/00001337-PHOTO-2023-08-31-03-02-10-400x200.jpg
+categories:
+  - family
+tags:
+  - family
+---
+
+
+**Chloe:**
+
+![00001337-PHOTO-2023-08-31-03-02-10](/images/00001337-PHOTO-2023-08-31-03-02-10.jpg)
+{: .align-center}
+
+
+**Chloe:** Johannes makes me breakfast before he goes to work at 6 every time I’m here
+
+**Tyler:** Awww!
+
+**Tyler:** And how was it meeting his parents?
+
+**Chloe:** AMAZING
+
+**Chloe:** they loved me
+
+**Tyler:** Awww
+
+**Tyler:** And how was their English?
+
+**Chloe:** Not perfect but good enough
+
+**Chloe:** We spent the first half speaking German
+
+**Tyler:** Nice!!
+
+**Tyler:** And what do they do for work?
+
+**Chloe:** His mom is a social worker and his dad is a judge
+
+**Chloe:** I have an appointment to start my retirement investment account !
+
+
+**Tyler:**
+
+![00001352-PHOTO-2023-08-31-08-14-52](/images/00001352-PHOTO-2023-08-31-08-14-52.jpg)
+{: .align-center}
+
+**Tyler:** A beer lover's paradise
+
+
+**Tyler:**
+
+![00001353-PHOTO-2023-08-31-08-14-52](/images/00001353-PHOTO-2023-08-31-08-14-52.jpg)
+{: .align-center}
+
+
+**Tyler:** @Luke do you see the Leffe?
+
+**Tyler:** Well the two brand on the bottom row are called La Trappe and Westmalle. Both of these are Belgian beers and are incredibly good
+
+**Tyler:** It's what's called a double bock, meaning it's doubly concentrated and has a semi sweet but dark taste
+
+**Luke:** That looks incredible
+
+**Luke:** I heard “dors” is good too
+
+**Sophia:** That’s sweet and all, but what in the bloody hell is that?
+
+**Chloe:** german breakfast is weird
+
+**Chloe:** its crunchy nutella on bread
+
+**Chloe:** watermelon
+
+**Chloe:** cream cheese on bread
+
+**Sophia:** Very European, not American. Americans are like 2 eggs, fried potatoes, bacon, toast, pancakes, french toast, and throw in an omelette.
+
+**Paul:** 😆
+
+**Tyler:** Cream cheese on bread is awesome
+
+**Tyler:** It is!!!
+
+**Sophia:** I love cream cheese, but not on bread. Toast or a bagel yes. Bread? No.
+
+**Sophia:** I also love Nutella. Guess I’ve had it on a bunch of things, but never just a slice of bread.
+
+**Sophia:** So toast with jam right? Some type of fruit bread like banana bread? The other I’m unsure
+
+**Paul:** OK, I have an idea I’d like to throw out - whenever and wherever all of us are together, Americans are in charge of making breakfast.
+
+**Tyler:** Okay fair enough, but ham and cheese croissants (not the ghetto shitty ones from my neighborhood) are the whip
+
+**Paul:** Don’t get me wrong, going out for breakfast wherever is fine and probably preferable, but it appears that Yanks are the only ones who developed the idea that breakfast is an important stand alone meal.
+
+**Paul:** I’m all in on all other Euro meals.
+
+**Sophia:** Really? Is that like what you’d say your average Dutch person eats at least a few times in their life, or on a regular basis?
+
+**Natalie:** Agreed
+
+**Natalie:** I can’t do all this chocolate and candy for breakfast that would make me sick
+
+**Sophia:** So I’d say Americans eat sandwiches daily, we just add lettuce, tomato, and mayonnaise.
+
+**Sophia:** Same. I LOVE chocolate, just not for breakfast.
+
+**Natalie:** I could never do chocolate for breakfast unless it’s in a coffee
+
+**Sophia:** Peperkoek looks delish. What does it taste like?
+
+**Sophia:** Ok, I could do hot chocolate for breakfast. But not actual chocolate or even Nutella (which I love.)
+
+
+**Natalie:**
+
+![00001371-PHOTO-2023-08-31-10-18-26](/images/00001371-PHOTO-2023-08-31-10-18-26.jpg)
+{: .align-center}
+
+
+**Natalie:** This is where it’s at
+
+**Sophia:** Nothing like bacon!!
+
+**Natalie:** But I will say spainish breakfast (cafe con leche, ham and cheese croissant) is the best
+
+**Sophia:** Yeah. I definitely prefer bacon over sausage.
+
+**Natalie:** Oh yeah
+
+**Tyler:** I agree with bacon
+
+**Paul:** https://www.dennys.com/menu/slams/build-your-own-grand-slam
+American Exceptionalism right there baby!
+
+**Paul:** It’s Classic Cinnamon Broom time of year again.
+
+
+**Paul:**
+
+![00001378-PHOTO-2023-08-31-10-54-56](/images/00001378-PHOTO-2023-08-31-10-54-56.jpg)
+{: .align-center}
+
+
+**Luke:** What are you? Some beatnick?
+
+**Luke:** Beatnik *
+
+**Paul:** You know it daddy-o!
+
+**Sophia:** Yo Daddy-o, will you please pick up Luke’s prescription at Walgreens? I have one script ready too
+
+**Natalie:** Next he’ll have healing crystals in his truck
+
+**Sophia:** Wait, didn’t Chloe or Natalie have a little broom like that??
+
+**Natalie:** Got one for my 24th birthday
+
+**Sophia:** I know I remember that little broom. Where did Dad get it??
+
+**Natalie:** I think Mae got one for her birthday too..dad is really obsessed with those things
+
+**Sophia:** He’s so ridiculous!! 😂
+
+**Natalie:** Keep him away from your biba voodoo doll
+
+**Sophia:** Lol!! I think I’ll give it to Margot! 😂😂
+
+**Natalie:** You should!
+
+**Paul:** Roger.
+
+**Sophia:** It IS a little bit scary tbh!
+
+**Natalie:** It is!!
+
+**Paul:** Home Depot - hurry they’re going fast!

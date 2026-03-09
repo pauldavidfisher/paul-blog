@@ -1,0 +1,174 @@
+---
+layout: post
+title: "Barcelona Day 12"
+date: 2023-08-24
+excerpt: "Barcelona Day 12"
+image:
+  path: /images/00000781-PHOTO-2023-08-24-02-13-57.jpg
+  thumbnail: /images/00000781-PHOTO-2023-08-24-02-13-57-400x200.jpg
+categories:
+  - family
+tags:
+  - family
+---
+
+**Tyler:** Could you send me his flight itinerary? I'm gonna book the same flight as him
+
+
+**Chloe:**
+
+![00000781-PHOTO-2023-08-24-02-13-57](/images/00000781-PHOTO-2023-08-24-02-13-57.jpg)
+{: .align-center}
+
+
+
+**Tyler:**
+
+![00000782-PHOTO-2023-08-24-02-57-03](/images/00000782-PHOTO-2023-08-24-02-57-03.jpg)
+{: .align-center}
+
+**Tyler:** Got mine too!!!
+
+**Tyler:** Coming home for Christmas!!!
+
+**Chloe:** WOOHOOOOOOOO
+
+**Tyler:** Although Johannieboo and I won't be on the same flight, it's still gonna be cool!
+
+**Tyler:** We're arriving 4 hours apart
+
+**Sophia:** That’s insane!!! Omg!! How fun!!
+
+**Sophia:** I can’t believe it’s happening!!
+
+**Sophia:** I think this will be a great night for all of us!! The house will be decorated with Christmas!!!
+
+**Chloe:** I'm thinking this christmas we shouldnt focus on getting expensive things but we should think about cute niche things that we've talked about or things we need
+
+**Paul:** I like that, except for Dad we should go all out.
+
+**Chloe:** you get nothing and like it
+
+**Chloe:** anyways I say this because I think there's a lot of pressure to do something extravagant for christmas but I think we should do more traditional things like chains, cookies, ice skating, getting the tree
+
+**Chloe:** and hopefully itll be cold this year bc I wanna take johannes to ypsi high
+
+**Sophia:** https://x.com/robschneider/status/1694462453420327194?s=46&t=OltVR_VQyEUbwtDmsorZFw
+
+**Sophia:** This is hilarious!! 👆🏼
+
+**Sophia:** Wait, we already have a tree. A fake one
+
+**Paul:** I say we just drive out to the little church and get some coffee and donuts 🍩 and call it a day.
+
+**Sophia:** We can get a wreath
+
+**Chloe:** Well I’m getting a small tree
+
+**Chloe:** For my room
+
+**Chloe:** And I’m
+Gonna decorate it
+
+**Chloe:** Because I like the smell of Christmas tree
+
+**Chloe:** You guys just lost all of your Christmas spirit
+
+**Chloe:** Btw
+
+**Tyler:** Yeah!!
+
+**Chloe:** We’re making Santa some cookies and milk
+
+**Tyler:** We have to take Johannes to the tree farm
+
+**Chloe:** I’m gonna make a Christmas groupchat
+
+**Tyler:** It's Part of the Americana experience
+
+**Tyler:** And when we get home we're gonna get fucked up on some homemade Gluhewein
+
+**Chloe:** You guys are gonna have so much fun making fun of Johannes’ accent
+
+**Tyler:** Oh I know it!!
+
+**Tyler:** I'm SOOO excited I got my ticket
+
+**Chloe:** Ikrrrrr
+
+**Chloe:** I’m so excited
+
+**Sophia:** You’ll have to get Chris’s recipe
+
+**Tyler:** Oh I will for sure!
+
+**Sophia:** Same!!!! I can’t even believe it!!
+
+**Chloe:** I feel bad bc Johannes looks over while I’m talking in this groupchat and I’m like nooo you’re not allowed to see this because making fun of you a little
+
+**Sophia:** In fact, when you get it, send it to me and I’ll go get all of the stuff for it!
+
+**Sophia:** Make a Christmas chat and add him
+
+**Natalie:** Dude what if johannes comes to Michigan and is like “wow, deez r Germans”
+
+
+**Natalie:**
+
+![00000826-PHOTO-2023-08-24-11-19-21](/images/00000826-PHOTO-2023-08-24-11-19-21.jpg)
+{: .align-center}
+
+
+**Natalie:** Poor puppy girl is sick
+
+**Luke:** I hope she gets well soon :(
+
+**Sophia:** What’s wrong??
+
+**Natalie:** She is vomiting
+
+**Natalie:** And diarrhea
+
+**Sophia:** Oh no!!!!!
+
+**Sophia:** Make some rice and chicken.
+
+**Sophia:** Change her water frequently
+
+**Natalie:** Iknow I fed her yogurt and we have been giving her probiotics and diarrhea meds
+
+**Natalie:** Going to do chicken and rice
+
+**Sophia:** No yogurt
+
+**Sophia:** It has milk in it and will make it worse
+
+**Natalie:** She was so dehydrated it was the only thing she could keep down
+
+**Sophia:** Oh no!!!!
+
+**Sophia:** Poor baby
+
+**Sophia:** Probably caught a bug while at the Barking Lot.
+
+**Natalie:** Iknow
+
+**Natalie:** Poor angel
+
+**Sophia:** 😢😢
+
+**Chloe:** Please
+
+**Chloe:** Hey
+
+**Chloe:** Pleaseeeeee
+
+**Chloe:** So important
+
+**Chloe:** Hey
+
+**Chloe:** Hiiiiiiiiiiii
+
+**Chloe:** 👋🏻
+
+**Paul:** https://open.spotify.com/track/6NG2IIXZfC5Notpz0GIODU?si=gVyGrr1kSEuFWW9NnTsvqQ

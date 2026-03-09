@@ -1,0 +1,31 @@
+{
+  "type": "FeatureCollection",
+  "features": [
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Chrisje"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.13515,
+          41.37315
+        ]
+      }
+    },
+    {
+      "type": "Feature",
+      "properties": {
+        "name": "Tyler"
+      },
+      "geometry": {
+        "type": "Point",
+        "coordinates": [
+          2.140173,
+          41.379341
+        ]
+      }
+    }
+  ]
+}

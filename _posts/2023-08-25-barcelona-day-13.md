@@ -1,0 +1,541 @@
+---
+layout: post
+title: "Barcelona Day 13"
+date: 2023-08-25
+excerpt: "Barcelona Day 13"
+image:
+  path: /images/00000855-PHOTO-2023-08-25-10-58-04.jpg
+  thumbnail: /images/00000855-PHOTO-2023-08-25-10-58-04-400x200.jpg
+categories:
+  - family
+tags:
+  - family
+---
+
+
+**Natalie:**
+
+![00000855-PHOTO-2023-08-25-10-58-04](/images/00000855-PHOTO-2023-08-25-10-58-04.jpg)
+{: .align-center}
+
+
+**Natalie:** Looks like Alaska isn’t the only sick dog
+
+**Tyler:** Oh no!!!
+
+**Chloe:** Aweeeee
+
+**Tyler:** Is Alaska recovering though?
+
+**Chloe:** Send a picture of a Alaska please
+
+**Chloe:** I had a really bad dream last night
+
+
+**Natalie:**
+
+![00000862-PHOTO-2023-08-25-10-59-58](/images/00000862-PHOTO-2023-08-25-10-59-58.jpg)
+{: .align-center}
+
+
+**Natalie:** She is recovering
+
+**Natalie:** A lot less puking and she can keep down solids now
+
+**Natalie:** The chicken and rice REALLY helped!! @Sophia
+
+**Chloe:** Send more pictures
+
+**Chloe:** Please
+
+**Chloe:** Or a video
+
+**Chloe:** Of her being pet
+
+
+**Natalie:**
+
+![00000870-PHOTO-2023-08-25-11-01-52](/images/00000870-PHOTO-2023-08-25-11-01-52.jpg)
+{: .align-center}
+
+
+**Chloe:** Aweeeeee
+
+**Natalie:** What was your dream?
+
+**Chloe:** I don’t want to say it
+
+**Chloe:** It was too sad
+
+**Natalie:** Was Alaska in it?
+
+**Chloe:** Yes ):
+
+**Chloe:** But it didn’t look like her for some reason
+
+**Natalie:** Did she die?
+
+**Chloe:** Yes but then someone brought her back to life weirdly but I wasn’t sure if it was really Alaska
+
+**Chloe:** We were in a war
+
+**Chloe:** And I was taking care of her
+
+**Chloe:** And giving her water because she was dehydrated
+
+**Sophia:** Oh boy, let’s get tf out of the U.S.
+
+**Chloe:** And I looked away for one second and then she was gone
+
+**Chloe:** And then I woke up and told Johannes
+
+**Natalie:** Yes let’s get out of here
+
+**Chloe:** And I was really sad
+
+**Sophia:** I’m serious
+
+**Chloe:** I was crying really hard in my dream
+
+**Sophia:** I really want to sell the house and get out of dodge
+
+**Chloe:** I didn’t know I loved Alaska like that until my dream
+
+**Natalie:** Awwwh
+
+**Natalie:** She’s an angel
+
+**Sophia:** I don’t think Charlie is going to make it another year. This will probably be our last Christmas with him. 😭
+
+**Chloe:** She is
+
+**Chloe:** Awwwww
+
+**Natalie:** I love this dog more than anything
+
+**Natalie:** Why do you say that!??
+
+**Chloe:** That makes me wanna cry mom
+
+**Natalie:** @Sophia
+
+**Sophia:** Bc he’s just aging very rapidly and he sleeps almost all of the time now
+
+**Chloe:** Let’s get prints of his paws
+
+**Sophia:** Yes!
+
+**Natalie:** Aww poor Charlie
+
+**Sophia:** Great idea!!
+
+**Chloe:** And let’s get him cremated so we can bury him wherever you move
+
+**Sophia:** I know. It’s going to rip my heart out of my body
+
+**Chloe:** Where he can run with buddy and Fiona
+
+**Natalie:** Yes
+
+**Sophia:** Yes!
+
+
+**Sophia:**
+
+![00000911-PHOTO-2023-08-25-11-06-45](/images/00000911-PHOTO-2023-08-25-11-06-45.jpg)
+{: .align-center}
+
+
+**Chloe:** Poor baby
+
+**Chloe:** Teddy needs to be taxidermied
+
+**Chloe:** I can’t be apart from him
+
+**Natalie:** Agreed
+
+**Chloe:** I want to take care of him even after he dies
+
+**Sophia:** He would probably jump up and down though if I got out his leash
+
+**Natalie:** He would
+
+**Natalie:** TedD should be taxidermied
+
+**Natalie:** That’s hilarious
+
+**Chloe:** Noooo it’s not supposed to be funny
+
+**Chloe:** It’s supposed to be symbolic
+
+**Chloe:** I’ll kiss him everyday
+
+**Natalie:** It kind of is funny though
+
+**Sophia:** Well I know Chloe is serious. Lol!!
+
+**Natalie:** I should have done that with buddy
+
+**Chloe:** Idk I have weird feelings about death
+
+**Chloe:** I want their ghosts to be with me
+
+**Natalie:** Who doesn’t
+
+**Chloe:** I don’t want them to go ):
+
+**Natalie:** Obvi nobody does
+
+**Chloe:** But I know they’ll be safe in heaven
+
+**Sophia:** Oh yes. Buddy is my little star! It would cost us about 100k to have Fiona taxidermied
+
+**Natalie:** It was so hard for me to bury buddy
+
+**Chloe:** It would LOLOL
+
+**Chloe:** poor buddy
+
+**Chloe:** He was such a good little cat
+
+**Natalie:** Fiona is the size of a grizzly bear
+
+
+**Sophia:**
+
+![00000939-PHOTO-2023-08-25-11-09-49](/images/00000939-PHOTO-2023-08-25-11-09-49.jpg)
+{: .align-center}
+
+
+**Natalie:** She could be on display at cabelas
+
+**Sophia:** Buddy is living his best life rn
+
+**Chloe:** CUPPERS
+
+**Chloe:** I Love him so much
+
+**Chloe:** I need to kiss buddy ASAP
+
+**Natalie:** Buddy is the best dog
+
+**Sophia:** Alongside a big bear!
+
+**Chloe:** I liked when Johannes Said “oh she’s lovely”
+
+**Sophia:** Well, even HE will think she’s big!!
+
+**Chloe:** He was so happy to be included in that groupchat 😭😭😅😅
+
+
+**Natalie:**
+
+![00000950-PHOTO-2023-08-25-11-11-11](/images/00000950-PHOTO-2023-08-25-11-11-11.jpg)
+{: .align-center}
+
+
+**Natalie:** Mom this made me think of u
+
+**Sophia:** That’s what I want
+
+**Natalie:** Nooo piso in Spain
+
+**Sophia:** Tyler and Marcel were talking to me this morning and kind of talked me into moving to a countryside farm in the south of France
+
+**Natalie:** Noooo
+
+**Sophia:** Near where they camped
+
+
+**Natalie:**
+
+![00000957-PHOTO-2023-08-25-11-12-52](/images/00000957-PHOTO-2023-08-25-11-12-52.jpg)
+{: .align-center}
+
+
+**Sophia:** Marcel said I could get a huge farmhouse for around 100,00€
+
+
+**Natalie:**
+
+![00000959-PHOTO-2023-08-25-11-13-01](/images/00000959-PHOTO-2023-08-25-11-13-01.jpg)
+{: .align-center}
+
+
+**Sophia:** When was this??
+
+
+**Natalie:**
+
+![00000961-PHOTO-2023-08-25-11-13-19](/images/00000961-PHOTO-2023-08-25-11-13-19.jpg)
+{: .align-center}
+
+
+
+**Natalie:**
+
+![00000963-PHOTO-2023-08-25-11-13-38](/images/00000963-PHOTO-2023-08-25-11-13-38.jpg)
+{: .align-center}
+
+
+**Sophia:** Awwwww
+
+**Sophia:** Wow, why didn’t we go here??
+
+
+**Natalie:**
+
+![00000966-PHOTO-2023-08-25-11-13-55](/images/00000966-PHOTO-2023-08-25-11-13-55.jpg)
+{: .align-center}
+
+
+
+**Natalie:**
+
+![00000967-PHOTO-2023-08-25-11-14-08](/images/00000967-PHOTO-2023-08-25-11-14-08.jpg)
+{: .align-center}
+
+
+**Natalie:** This was the placebo in the gothic quarter
+
+**Natalie:** It even had a pool!!
+
+**Sophia:** I loved that area!!! Next time we will go there!
+
+**Natalie:** Idk because Tyler said it was an Arab place we couldn’t go there
+
+**Natalie:** But it was so fun!!
+
+**Sophia:** Would you swim in it?
+
+**Natalie:** Yes
+
+**Natalie:** I put my feet in
+
+**Sophia:** I bet it was less expensive than 1881
+
+**Natalie:** Yup
+
+**Sophia:** Damn!!
+
+**Sophia:** Reason 1 million and 1 reasons to go back
+
+**Natalie:** I didn’t wanna leave
+
+**Sophia:** I didn’t either. And since I’ve been back I’ve been sick and feeling just blah
+
+**Natalie:** Same
+
+**Sophia:** I have zero motivation
+
+**Natalie:** Same
+
+**Natalie:** I just wanna be in Spain
+
+**Sophia:** Me too. If I could afford to buy a place in Castelle de Fels I would. But I can’t afford it rn
+
+**Natalie:** Yeah I mean literally shakira lived there so I don’t think anyone can afford it lol
+
+**Sophia:** But maybe there are places in Garaff or a few miles out of the area that I COULD afford
+
+**Sophia:** I just want a place for us and our pups
+
+**Tyler:** Nooo it's a place next by that had dangerous Arabs at night
+
+**Tyler:** But don't worry, this one is fine
+
+**Luke:** He’s really not that bad. He can still do 3 mile walks in the blistering heat
+
+**Chloe:** I think the south of France sounds better. Will it get colder than in Barcelona?
+
+**Chloe:** Fiona won’t be able to function
+
+**Natalie:** Me either
+
+**Luke:** We’ll actually she has a second coat that acts like a coolant
+
+**Luke:** -Jim desana
+
+**Tyler:** It does get better
+
+**Tyler:** Much colder
+
+
+**Natalie:**
+
+![00001000-PHOTO-2023-08-25-11-22-16](/images/00001000-PHOTO-2023-08-25-11-22-16.jpg)
+{: .align-center}
+
+
+
+**Sophia:**
+
+![00001001-PHOTO-2023-08-25-11-22-36](/images/00001001-PHOTO-2023-08-25-11-22-36.jpg)
+{: .align-center}
+
+**Sophia:** Btw, this is Barceloneta
+
+**Chloe:** 😍😍😍
+
+**Sophia:** Barceloneta is Tyler’s adult version of scotch tape
+
+**Natalie:** YES
+
+**Natalie:** he NEVER lets us go
+
+**Luke:** We are still not allowed to go into the Tom and jerry store
+
+**Natalie:** I went tho
+
+**Tyler:** No that's south of sitges
+
+**Tyler:** You're NOT supposed to go there
+
+
+**Sophia:**
+
+![00001010-PHOTO-2023-08-25-11-26-40](/images/00001010-PHOTO-2023-08-25-11-26-40.jpg)
+{: .align-center}
+
+**Sophia:** This is the place I’ve always wanted to go. I zoomed in when making a birthday wish for Tyler on Facebook and made it black and white, but this is a rooftop bar. Which one is this Tyler?
+
+**Tyler:** This is the lower deck at the W Hotel
+
+**Natalie:** Mom dad and I went
+
+**Natalie:** It was great
+
+**Sophia:** Why didn’t we go here? Bc it was Barceloneta?
+
+
+**Natalie:**
+
+![00001015-PHOTO-2023-08-25-11-28-28](/images/00001015-PHOTO-2023-08-25-11-28-28.jpg)
+{: .align-center}
+
+
+**Natalie:** Me and pae
+
+**Chloe:** Maeeee
+
+**Chloe:** T minus 50 minutes until I see two mofos
+
+**Sophia:** I’m so bummed for Chrisje. Tyler, did she get her passport back?
+
+**Natalie:** What happened?
+
+**Natalie:** Wtf
+
+**Natalie:** I’d be so mad
+
+**Sophia:** Yeah, so Chrisje couldn’t get on the flight this morning
+
+**Sophia:** She has to fly in tomorrow
+
+**Chloe:** Oh btw I also had a dream that this Arab terrorist was reincarnated and I went to a meuseam that showed his original body and then I woke up Johannes in my sleep and says “there’s a terrorist, I’m gonna go back to sleep to go go back to the museum”
+
+**Chloe:** Museum ***
+
+**Sophia:** 😆😆
+
+**Sophia:** My texts are coming in slowly bc we are out of power AGAIN!!
+
+**Natalie:** What!?
+
+**Sophia:** Yes, we had some baby storm and now our power is out. This is the 4th time in the last few months
+
+
+**Chloe:**
+
+![00001032-PHOTO-2023-08-25-11-38-44](/images/00001032-PHOTO-2023-08-25-11-38-44.jpg)
+{: .align-center}
+
+
+**Chloe:** I am violently sobbing from this photo
+
+**Sophia:** Dad would just make me shave it off 😂😂
+
+**Paul:** Stop!
+
+**Sophia:** Well…
+
+**Paul:** Wait, isn’t this Bubba-bu-la Beach?!
+
+**Sophia:** Nope. Thought it was but this is south of Sitges
+
+**Sophia:** Ok mofos, what’s everyone doing?
+
+**Tyler:** Were waiting for stoey at the dumpiest train station in Germany
+
+**Chloe:** Lol!!!
+
+**Chloe:** Almost here
+
+**Sophia:** Omg!! Ask Chloe to tell you about the dump she saw in the toilet
+
+**Sophia:** Make sure to take a video
+
+**Chloe:** Tyler better have drinks
+
+**Chloe:** I need a Drink 😪
+
+**Tyler:** We sure do!!!
+
+**Chloe:** OMGGGG
+
+**Tyler:** We have some I think you'll like
+
+**Chloe:** I also have to pee…
+
+**Tyler:** She is!!!
+
+**Sophia:** OMG!!!
+
+**Sophia:** Did you get your passport?
+
+
+**Chloe:**
+
+![00001054-PHOTO-2023-08-25-12-28-52](/images/00001054-PHOTO-2023-08-25-12-28-52.jpg)
+{: .align-center}
+
+
+**Sophia:** Great!! Are you and Maria having drinks and chocolate?
+
+**Sophia:** Tell her I said hello!
+
+**Sophia:** I want some!!
+
+
+**Chloe:**
+
+![00001056-PHOTO-2023-08-25-12-29-29](/images/00001056-PHOTO-2023-08-25-12-29-29.jpg)
+{: .align-center}
+
+
+**Sophia:** Are you on your way to July’s house?
+
+**Tyler:** Yep!!!
+
+**Sophia:** Nice!!
+
+**Natalie:** Love Maria
+
+**Sophia:** Hilarious!! You mean you didn’t want to sit down and join in their jam session?? 😂😂
+
+**Sophia:** Weirdos!
+
+**Sophia:** I did! Was that a song from the Spanish Civil War??
+
+**Sophia:** It was!! I bet it was some Catalán song from 1885
+
+**Sophia:** Yeah, it’s like they were blocking residents and then acting like you were bothering them
+
+
+**Paul:**
+
+![00001064-PHOTO-2023-08-25-12-34-38](/images/00001064-PHOTO-2023-08-25-12-34-38.jpg)
+{: .align-center}
+
+
+**Sophia:** Pics plz Tyler and Coco
