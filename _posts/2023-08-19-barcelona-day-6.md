@@ -140,6 +140,9 @@ tags:
 **Paul:**
 ![image-right]({{ /images/peanut-butter-cookies-400x200.jpg' | absolute_url }}){: .align-right}
 
+![00000478-PHOTO-2023-08-19-03-37-59](/images/peanut-butter-cookies-400x200.jpg)
+{: .align-right}
+
 ![00000500-PHOTO-2023-08-19-09-36-10](/images/00000500-PHOTO-2023-08-19-09-36-10.jpg)
 {: .align-center}
 
